@@ -1,4 +1,5 @@
-## Hi there 👋
+![image](https://github.com/user-attachments/assets/4388e6fa-d8a2-45e5-aacd-cac73eb5d5a7)
+
 
 <!--
 **yoursriddler/yoursriddler** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
