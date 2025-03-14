@@ -16,13 +16,13 @@
 
 𝚆𝚑𝚊𝚝 𝚊𝚖 𝙸❔ 
 
-![image](https://github.com/user-attachments/assets/5b979f10-4e2b-4195-9290-30a0b56e97e3)![image](https://github.com/user-attachments/assets/12321201-8f05-4e06-b839-de7c4c377685)
+![image](https://github.com/user-attachments/assets/5b979f10-4e2b-4195-9290-30a0b56e97e3)
 
 
 ![image](https://github.com/user-attachments/assets/26d06847-de91-4dde-bd69-709dc3f8cbd4)
 
 
-![image](https://github.com/user-attachments/assets/e7699e98-b901-4223-ad01-237185bc7221)![image](https://github.com/user-attachments/assets/9d2193eb-980c-411b-80fe-49b1ca2c97c4)
+![image](https://github.com/user-attachments/assets/e7699e98-b901-4223-ad01-237185bc7221)
 
 
 
