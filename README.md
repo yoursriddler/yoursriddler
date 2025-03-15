@@ -1,3 +1,4 @@
+![image](https://github.com/user-attachments/assets/edb8be56-9967-4127-8cd0-806565d689d2)
 
 << 𝐑𝐢𝐝𝐝𝐥𝐞 𝐌𝐞 𝐓𝐡𝐢𝐬, 𝐖𝐡𝐚𝐭'𝐬 𝐃𝐞𝐚𝐝? 𝐘𝐨𝐮! < ? >
 
