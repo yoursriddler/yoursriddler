@@ -1,5 +1,3 @@
-![image](https://github.com/user-attachments/assets/4388e6fa-d8a2-45e5-aacd-cac73eb5d5a7)
-
 
 << 𝐑𝐢𝐝𝐝𝐥𝐞 𝐌𝐞 𝐓𝐡𝐢𝐬, 𝐖𝐡𝐚𝐭'𝐬 𝐃𝐞𝐚𝐝? 𝐘𝐨𝐮! < ? >
 
@@ -18,10 +16,10 @@
 
 𝐖𝐨𝐫𝐤𝐢𝐧𝐠 𝐎𝐧 𝐌𝐲 𝐒𝐭𝐫𝐚𝐰 𝐏𝐚𝐠𝐞!
 
-![image](https://github.com/user-attachments/assets/5b979f10-4e2b-4195-9290-30a0b56e97e3)
+
+![image](https://github.com/user-attachments/assets/cc0e982f-44b0-4883-b152-aadb79432980)
 
 
-![image](https://github.com/user-attachments/assets/26d06847-de91-4dde-bd69-709dc3f8cbd4)
 
 
 
